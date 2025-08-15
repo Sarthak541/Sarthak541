@@ -1,4 +1,4 @@
-## Hi there 👋
+## Wasuup Homie it's Sarthoky👋
 
 <!--
 **Sarthak541/Sarthak541** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
